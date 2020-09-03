@@ -29,11 +29,11 @@ de todas las personas involucradas.
 
 Siendo México quien propuso a la Asamblea General de las Naciones
 Unidas la elaboración de una Convención específica para la protección de
-los derechos de las Personas con Discapacidad \1\; la cual fue firmada
+los derechos de las Personas con Discapacidad[1]; la cual fue firmada
 en marzo de 2007 en la ONU, en nuestro país \"se publicó el Decreto de
 Aprobación de la Convención, en el Diario Oficial de la Federación, el
 24 de octubre del mismo año, con lo que se pudo ratificar por México el
-17 de enero de 2008.\" \2\; decretandose "por encima de todas las
+17 de enero de 2008.\"[2]; decretandose "por encima de todas las
 Leyes, excepto de la Constitución Política de los Estados Unidos
 Mexicanos.\", según lo dicta el Artículo Primero de nuestra
 Constitución.
