@@ -12,4 +12,4 @@ Así la primera minuta es:
 
 Puedes acceder a las minutas que se encuentran en la carpeta [archivos](archivos) desde los enlaces siguientes.
 
-1. [2020-11-03](archivos/2020-11-03.pdf)
+1. [2020-11-03](archivos/2020-10-03.pdf)
